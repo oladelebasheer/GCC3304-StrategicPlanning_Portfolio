@@ -1,0 +1,1 @@
+with a table listing Political, Economic, Social, Technological, Legal, and Environmental factors affecting your chosen company.

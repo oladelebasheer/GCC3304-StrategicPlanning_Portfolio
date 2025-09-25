@@ -1,0 +1,1 @@
+with a 2x2 SWOT table for an organization of choice.

@@ -1,0 +1,1 @@
+Draft a policy document (1–2 pages) for a business initiative (e.g., remote work policy).

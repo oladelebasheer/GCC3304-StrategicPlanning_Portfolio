@@ -1,0 +1,1 @@
+Write a comparison essay (200–300 words) with examples of one company that relied too much on rigid planning vs one that thrived through strategic thinking.

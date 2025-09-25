@@ -1,0 +1,1 @@
+Write a 1-page innovation proposal for an industry in Nigeria (e.g., fintech, agriculture, education).
